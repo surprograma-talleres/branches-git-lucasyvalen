@@ -1,12 +1,12 @@
 ### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-Lapacho
+Salta
 Solito en el monte
 Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
 
-Lapacho
+Salta
 También en mi alma
 La vida
 Sembró su color.
