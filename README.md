@@ -1,4 +1,4 @@
-### [Alma de Cristo](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
+### [Alma de Jesus todo poderoso](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
 Lapacho
 Solito en el monte
