@@ -1,4 +1,4 @@
-### [Alma de Quebracho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
+### [Alma de Cristo](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
 Lapacho
 Solito en el monte
