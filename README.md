@@ -1,4 +1,4 @@
-### [Vuelve Cristo](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
+[Vuelve Cristo todo poderoso](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
 Salta
 Solito en el monte
